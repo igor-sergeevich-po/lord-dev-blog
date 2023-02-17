@@ -1,1 +1,0 @@
-# lord-dev-blog
